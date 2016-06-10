@@ -1,0 +1,1 @@
+![alt tag](http://s018.radikal.ru/i525/1606/19/96e6ce873b71.png)
